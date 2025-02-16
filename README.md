@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @WillumpIRL
+- 👀 I’m interested in videogames, movies, fantasy and sci fi
+- 🌱 I’m currently learning Computer Science (Major Software Engineering)
+- 💞️ I’m looking to collaborate on intersting projects
+- 📫 How to reach me wgj8860@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: ༼ つ ◕_◕ ༽つ
