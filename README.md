@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on intersting projects
 - 📫 How to reach me wgj8860@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ༼ つ ◕_◕ ༽つ
+- ⚡ Fun fact: I am a triathlete
